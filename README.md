@@ -1,2 +1,3 @@
 # hello-world
 New ideas for coding 
+I am a young male who is intrigued and curious about designing and the design world. I have a flare for learning new things and enjoy the experience of adding new skills to my arsenal. I can be described as weird or unorthodox but arent all designers in that description...
